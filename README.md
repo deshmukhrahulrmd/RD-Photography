@@ -35,10 +35,9 @@ Are you ready to embark on a journey that seamlessly blends artistry and innovat
 
 Don't miss out on this one-of-a-kind digital adventure that bridges the gap between passion and technology. Embark on an exploration that redefines the way we engage with hobbies. Click the link and let the journey begin! 🚀🎉🌟
 
-📸 Follow me on Instagram: @PassionInCode
-🐦 Tweet about it: #PassionMeetsTech
+📸 Follow me on Instagram: @rahulmdeshmukh
 
 See you on the other side of innovation!
 Cheers,
-.Rahul Deshmukh.
+Rahul Deshmukh.
 Creator of Rahul Deshmukh.
