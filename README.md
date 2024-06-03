@@ -40,4 +40,4 @@ Don't miss out on this one-of-a-kind digital adventure that bridges the gap betw
 See you on the other side of innovation!
 Cheers,
 Rahul Deshmukh.
-Creator of Rahul Deshmukh.
+Creator of Photography Website
